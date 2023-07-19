@@ -1,1 +1,1 @@
-![](https://github.com/Luanf/luanf/blob/main/blessedmarquee.gif?raw=true)
+![](https://github.com/Luanf/luanf/blob/main/profile-marquee (25).gif?raw=true)
